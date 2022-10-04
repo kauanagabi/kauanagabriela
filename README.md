@@ -1,3 +1,6 @@
 # kauanagabriela
 Hello, Devs!!
-Tenho 15 anos,moro em Rebouças/PR,estou aprendedo programação,aprendo e passo raiva,mas gosto de tudo isso
+
+ola meu nome e kauana
+e-mail de contato @kauana.mielniczek@escola.pr.gov.br
+estou interessado em aprender novas linguagens 
